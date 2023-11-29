@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SantaAnaUniverse
+- 👋 Hi, I’m @SantanaUniverse
 - 👀 I’m interested in Programming?
 - 🌱 I’m currently learning comics
 - 💞️ I’m looking to collaborate on my games? uh... i dont know...
